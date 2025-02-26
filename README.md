@@ -11,11 +11,11 @@
 
 - 👯 I’m looking to collaborate on **Full-Stack Projects**
 
-- 👨‍💻 All of my projects are available at [comming soon](comming soon)
+- 👨‍💻 All of my projects are available at [comming soon]
 
 - 📫 How to reach me **leroymccarty007@yahoo.com**
 
-- 📄 Know about my experiences [comming soon](comming soon)
+- 📄 Know about my experiences [comming soon]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
